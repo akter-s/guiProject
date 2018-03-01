@@ -1,4 +1,3 @@
 # guiProject
-    asdfghjkl123
-    rgrop
+    Gang shit, big shaq, skrrrrahhhh
     
